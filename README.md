@@ -1,1 +1,1 @@
-"# itElective01 - edited by Vladyslav" 
+# itElective01 - edited by Venya and Vladyslav
