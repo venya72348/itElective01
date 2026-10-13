@@ -1,1 +1,1 @@
-"Team: Vladyslav" 
+Team: Venya and Vladyslav
