@@ -1,1 +1,1 @@
-# itElective01 - edited by Venya
+# itElective01 - edited by Venya and Vladyslav
